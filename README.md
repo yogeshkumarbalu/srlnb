@@ -9,6 +9,8 @@ Coimbatore, India
 
 Proprieter :- Balasubramanian N
 
+contact :- shreerajalakshmi@yahoo.com
+
 
 # ybsfarms
 YBS Organic Farms
@@ -20,3 +22,5 @@ Swiss organic certified farmer
 Alagukavundanvalasu, Kangayam, India
 
 Proprieter :- Balasubramanian N
+
+contact :- ybsfarms@yahoo.com

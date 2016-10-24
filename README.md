@@ -1,7 +1,7 @@
 #srlnb
 Shree Rajalakshmi Notebooks,
 
-Manufacturers of school notebooks and all types of calenders,
+Manufacturers of school notebooks and all types of calendars,
 
 Printing press,
 
